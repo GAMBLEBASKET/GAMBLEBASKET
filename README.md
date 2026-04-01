@@ -4,5 +4,13 @@
 ![](https://github.com/GAMBLEBASKET/GAMBLEBASKET/blob/58fc276711163099a0feb83ee766eda2dd941c05/Untitled928_20260331211319.png)
 #
 <details>
-<summary> $${\color{#8A1D6A} ⬅ \space basic-info }$$ </summary>
-wip.
+<summary> $${\color{#8A1D6A} ⬅ \space dni }$$ </summary>-hazbin hotel/viziepop fans
+
+ -gigi yumeshippers
+  
+-fruitcake shippers (problematic)
+
+-gambleghost (thin ice)
+
+-nth much else,, just don't be weird idea block freely.
+# 
